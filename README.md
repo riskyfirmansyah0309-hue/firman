@@ -1,0 +1,2 @@
+# firman
+untuk memperkenalkan diri 
